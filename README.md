@@ -1,2 +1,2 @@
 ### 
-![veronica](https://user-images.githubusercontent.com/103942559/169394271-f125f08b-3fd3-44fb-b550-673eb1db5ea3.gif)
+![guy](https://user-images.githubusercontent.com/103942559/169671568-e03ab806-7d0b-426e-a268-ce418038d809.png)
